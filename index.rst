@@ -1,5 +1,5 @@
 ****************************************
-
+MY SINGING MONSTERS HACK - UNLIMITED COINS & DIAMONDS GENERATOR (7DCGBC8XX0)
 ****************************************
 
 
